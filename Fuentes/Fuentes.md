@@ -17,3 +17,5 @@ https://www.emol.com/noticias/magazine/2007/01/23/243272/pelicula-papelucho-y-el
 https://www.boxofficemojo.com/release/rl3343549697/weekend/
 
 https://www.boxofficemojo.com/release/rl2382530049/
+
+https://www.lavanguardia.com/peliculas-series/peliculas/selkirk-el-verdadero-robinson-crusoe-89733
